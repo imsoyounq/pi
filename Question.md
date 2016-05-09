@@ -1,0 +1,5 @@
+What kind of bear is best?
+That's a ridiculous question.
+False. Black bear.
+That's debatable. There are basically two schools of thought--
+Fact. Bears eat beets. Bears. Beets. Battlestar Galactica.
